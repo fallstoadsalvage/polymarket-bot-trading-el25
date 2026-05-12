@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket addon with vip Polymarket Addon | volatility-detection + order-book-analysis. Featuring volatility-detection and order-book-analysis, it's the best
 
 
 
